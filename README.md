@@ -19,4 +19,5 @@ I’m also passionate in:
 📚 Stephen King books  
 
 
-📫 Contact me at erickponceleao@gmail.com 
+📫 Contact me at erickponceleao@gmail.com  
+✉️ LinkedIn: https://www.linkedin.com/in/erick-ponce-leão-33b77879/
